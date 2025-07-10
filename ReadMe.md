@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Feulo
+# 👋 Hi, I'm SHRI HARI,aka FEULO. 
 
 🎮 Indie Game Developer | 💻 Full-Stack Web Dev Learner | ⚙️ Mechanical Engineering Student  
 ✨ Passionate about **designing**, **developing**, and bringing ideas to life through code and creativity.
